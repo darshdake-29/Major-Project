@@ -1,1 +1,1 @@
-# group-2
+# Major Project
